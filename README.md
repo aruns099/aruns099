@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...WEB3 Projects
 - 📫 How to reach me ... @arunsingh013 on twitter
 - 😄 Pronouns: ... Arun
-- ⚡ Fun fact: ...I already have experience of 2years in crypto.
+- ⚡ Fun fact: ...I already have experience of 3 years in crypto.
 
 <!---
 aruns099/aruns099 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
